@@ -105,3 +105,6 @@ Author
 Abhinav Dwivedi
 
 Aspiring Data Analyst interested in using data, analytics, and business intelligence tools to turn raw data into meaningful insights.
+<img width="894" height="498" alt="Screenshot 2026-10-01 165835" src="https://github.com/user-attachments/assets/cf73cfa6-25c6-45d9-b225-16b51af5f58a" />
+
+
