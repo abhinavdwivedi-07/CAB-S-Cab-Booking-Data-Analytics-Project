@@ -107,4 +107,13 @@ Abhinav Dwivedi
 Aspiring Data Analyst interested in using data, analytics, and business intelligence tools to turn raw data into meaningful insights.
 <img width="894" height="498" alt="Screenshot 2026-10-01 165835" src="https://github.com/user-attachments/assets/cf73cfa6-25c6-45d9-b225-16b51af5f58a" />
 
+<img width="882" height="494" alt="Screenshot 2026-10-01 170017" src="https://github.com/user-attachments/assets/493a9c5f-89a9-46ae-a93e-8ed9046ee7b5" />
+
+<img width="890" height="497" alt="Screenshot 2026-10-01 170106" src="https://github.com/user-attachments/assets/9e063d74-b248-435e-894a-cee747509324" />
+
+<img width="893" height="502" alt="Screenshot 2026-10-01 170130" src="https://github.com/user-attachments/assets/53ea78bf-bbbe-4579-8ee8-193753cc0a68" />
+
+<img width="882" height="494" alt="Screenshot 2026-10-01 170200" src="https://github.com/user-attachments/assets/50877304-4317-4ed4-add3-4b3a75d9e871" />
+
+
 
